@@ -1,6 +1,6 @@
 # Activity 1 Day 1
 
-![](https://media.giphy.com/media/cnuNz0fTBIUGnx4F9T/giphy.gif)
+![Amazing](Amazing.jpeg)
 
 
-I have selected this meme as my first week was ```amazing```
+I have selected this meme as my first week was ```amazing``` and it is great to have a good week which is amazing. 
